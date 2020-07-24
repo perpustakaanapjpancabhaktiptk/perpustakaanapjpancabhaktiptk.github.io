@@ -6,29 +6,24 @@ Berisi tentang rangkuman dan kumpulan karya ilmiah yang telah dipublikasikan ole
 
 Pada Halaman ini berisi koleksi jurnal ilmiah sebagai berikut:
 
-Atria dan Agus, (2013) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Sani, (2013) [Analisis Prosedur Pencatatan Persediaan pada PT Perkebunan Nusantara XIII (Persero) Pontianak](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Agus, (2014) [Kajian Penelitian Pasar Kenangan Pontianak](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Sani, (2015) [Pengaruh Perilaku Konsumen terhadap Keputusan Berbelanja di Hypermart Pontianak](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Joko, (2015) [Evaluasi Persetujuan dan Pelaporan Pajak Penghasilan (PPh) Pasal 28A dan 29 Berdasarkan UU Ketentuan Umum dan Tata Cara Perpajakan No. 28 Tahun 2007 di KPP Pratama Pontianak](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Agus, (2015) [Rancangan Laporan Analisa Potensi Pajak Bahan Bakar Kendaraan Bermotor (PBB KB) di Kalbar](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
-
-Atria dan Agus, (2016) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
+1. Atria Tiffany W. dan Sani, (2013) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1WzWsupL4iF8J_nsH7A6u-OfRpheM4H_I/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
+2. Atria Tiffany W dan Sani, (2013) [Analisis Prosedur Pencatatan Persediaan pada PT Perkebunan Nusantara XIII (Persero) Pontianak](https://drive.google.com/file/d/1E-9GB6FyTO4vAuphA6U2Wu0GaX3l-E20/view?usp=sharing). PT Perkebunan Nusantara XIII (Persero), Pontianak
+3. Atria Tiffany W. dan Agus M. Murdiani, (2014) [Kajian Penelitian Pasar Kenanga Pontianak](https://drive.google.com/file/d/1EKRBsYvj0cud6TwlYMBVxduNWlrTFFGq/view?usp=sharing). Bappeda Kota Pontianak
+4. Atria Tiffany W dan Sani, (2015), [Pengaruh Perilaku Konsumen terhadap Keputusan Berbelanja di Hypermart Pontianak](https://drive.google.com/file/d/12yboqHdBRTX-2DaFbL1t1q7BV2rCRtz4/view?usp=sharing). Hypermart, Pontianak
+5. Atria Tiffany W. dan Joko Suseno, (2015) [Evaluasi Perhitungan dan Pelaporan Pajak Penghasilan (PPh) Pasal 28A dan 29 Berdasarkan UU Ketentuan Umum dan Tata Cara Perpajakan No. 28 Tahun 2007 di KPP Pratama Pontianak](https://drive.google.com/file/d/1CzvUXb3gXQJsLGJTVACoub0fFCldIqDo/view?usp=sharing). KPP Pratama, Pontianak
+8. Atria Tiffany W. dan Agus M. Murdiani, (2018) [Penyelenggaraan Pembangunan Ketahanan Keluarga di Provinsi Kalimantan Barat](https://drive.google.com/file/d/13FZJAu-shoO5VEeyvbK4wJNRgTuX6DNJ/view?usp=sharing). Dewan Perwakilan Rakyat Daerah (DPRD) Provinsi Kalimantan Barat
+9. Atria Tiffany W. dan Agus M. Murdiani, (2015) [Analisis Pengaruh Kompetensi Terhadap Kinerja Pegawai pada Dinas Pertanian Kabupaten Natuna](https://drive.google.com/file/d/105d_EKg-XpmngRzU-2lNlbuD6b5C3Zyg/view?usp=sharing). Dinas Pertanian Kabupaten Natuna, Natuna
+10. Atria Tiffany W. dan Agus M. Murdiani, (2016) [Analisa Potensi Pajak Bahan Bakar Kendaraan Bermotor (PBB KB) di Kalimantan Barat](https://drive.google.com/file/d/1Dy02Tpy24UwllRRcSwwK2X4IQjRqj98e/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
 
 ### Daftar Inventaris Buku
 
-[Koleksi Buku Perpustakaan](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing)
-
-Atria Tiffany Widyaningsih, SE., MM.
+Kampus APJ Panca Bhakti Pontianak memiliki koleksi perpustakaan yang terdiri dari kategori:
+1. Literatur sejumlah 1819 eksemplar buku
+2. Umum sejumlah 127 eksemplar buku
 
 ### Tim Penyusun
 
-Atria Tiffany Widyaningsih, SE., MM.
+Yunandar Mahanafi, A.Md.
 
 ### Hubungi Kami
 

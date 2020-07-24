@@ -22,8 +22,8 @@ Pada Halaman ini berisi koleksi jurnal ilmiah sebagai berikut:
 ### Daftar Inventaris Buku
 
 Kampus APJ Panca Bhakti Pontianak memiliki koleksi perpustakaan yang terdiri dari kategori:
-1. Literatur sejumlah [1819 eksemplar buku](https://drive.google.com/file/d/1DT41kWzat4xmj9C2gnmhsKPIasnEvG_r/view?usp=sharing)
-2. Umum sejumlah [127 eksemplar buku](https://drive.google.com/file/d/1DT41kWzat4xmj9C2gnmhsKPIasnEvG_r/view?usp=sharing)
+1. Literatur sejumlah [1819 eksemplar buku](https://drive.google.com/file/d/1M9z6E81wwW4BLVPnFU-YZAE4p1yOQpWe/view?usp=sharing)
+2. Umum sejumlah [127 eksemplar buku](https://drive.google.com/file/d/1M9z6E81wwW4BLVPnFU-YZAE4p1yOQpWe/view?usp=sharing)
 3. Majalah sejumlah 81 eksemplar buku
 4. Buletin sejumlah 75 eksemplar buku
 5. Jurnal sejumlah 4 eksemplar buku
@@ -31,7 +31,8 @@ Kampus APJ Panca Bhakti Pontianak memiliki koleksi perpustakaan yang terdiri dar
 
 ### Tim Penyusun
 
-Yunandar Mahanafi, A.Md.
+- Pengurus Perpustakaan dan Repositori
+- Kampus APJ Panca Bhakti Pontianak
 
 ### Hubungi Kami
 

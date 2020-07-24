@@ -14,6 +14,8 @@ Pada Halaman ini berisi koleksi jurnal ilmiah sebagai berikut:
 8. Atria Tiffany W. dan Agus M. Murdiani, (2018) [Penyelenggaraan Pembangunan Ketahanan Keluarga di Provinsi Kalimantan Barat](https://drive.google.com/file/d/13FZJAu-shoO5VEeyvbK4wJNRgTuX6DNJ/view?usp=sharing). Dewan Perwakilan Rakyat Daerah (DPRD) Provinsi Kalimantan Barat
 9. Atria Tiffany W. dan Agus M. Murdiani, (2015) [Analisis Pengaruh Kompetensi Terhadap Kinerja Pegawai pada Dinas Pertanian Kabupaten Natuna](https://drive.google.com/file/d/105d_EKg-XpmngRzU-2lNlbuD6b5C3Zyg/view?usp=sharing). Dinas Pertanian Kabupaten Natuna, Kepulauan Riau
 10. Atria Tiffany W. dan Agus M. Murdiani, (2016) [Analisa Potensi Pajak Bahan Bakar Kendaraan Bermotor (PBB KB) di Kalimantan Barat](https://drive.google.com/file/d/1Dy02Tpy24UwllRRcSwwK2X4IQjRqj98e/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
+11. Atria Tiffany W. dan Sani, (2018) [Analisa Kontribusi Penerimaan Partisipasi Pihak Ketiga Dari Kendaraan Bermotor Roda Empat Luar Daerah di Provinsi Kalimantan Barat](https://drive.google.com/file/d/1FapCHWLAR9H4ZdIckXuWOV_FK3jFhBHZ/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
+12. Atria Tiffany W. dan Sani, (2019) [The Analysis Potency of Slaughterhouse Retribution and Its Contribution for Pendapatan Asli Daerah (PAD) Pontianak City](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Eksos Politeknik Negeri Pontianak, Provinsi Kalimantan Barat
 
 ### Daftar Inventaris Buku
 

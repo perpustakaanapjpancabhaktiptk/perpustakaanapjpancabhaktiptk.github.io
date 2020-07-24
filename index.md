@@ -20,11 +20,17 @@ Atria dan Agus, (2015) [Rancangan Laporan Analisa Potensi Pajak Bahan Bakar Kend
 
 Atria dan Agus, (2016) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Universitas Tanjungpura, Pontianak.
 
+### Daftar Inventaris Buku
+
+[Koleksi Buku Perpustakaan](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing)
+
+Atria Tiffany Widyaningsih, SE., MM.
+
 ### Tim Penyusun
 
 Atria Tiffany Widyaningsih, SE., MM.
 
 ### Hubungi Kami
 
-Kampus Gading APJ Panca Bhakti Pontianak
+Kampus APJ Panca Bhakti Pontianak
 Jalan Sultan Abdurrahman Pontianak

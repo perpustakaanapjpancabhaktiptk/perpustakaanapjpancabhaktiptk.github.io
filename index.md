@@ -6,7 +6,7 @@ Berisi tentang rangkuman dan kumpulan karya ilmiah yang telah dipublikasikan ole
 
 Pada Halaman ini berisi koleksi jurnal ilmiah sebagai berikut:
 
-1. Atria Tiffany W. dan Sani, (2013) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1WzWsupL4iF8J_nsH7A6u-OfRpheM4H_I/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
+1. Atria Tiffany W. dan Agus M. Murdiani, (2013) [Kegiatan Analisa Pendapatan dan Pengkajian Potensi Pajak Air Permukaan (PPAP) Provinsi Kalimantan Barat](https://drive.google.com/file/d/1WzWsupL4iF8J_nsH7A6u-OfRpheM4H_I/view?usp=sharing). Dinas Pendapatan Daerah, Provinsi Kalimantan Barat
 2. Atria Tiffany W dan Sani, (2013) [Analisis Prosedur Pencatatan Persediaan pada PT Perkebunan Nusantara XIII (Persero) Pontianak](https://drive.google.com/file/d/1E-9GB6FyTO4vAuphA6U2Wu0GaX3l-E20/view?usp=sharing). PT Perkebunan Nusantara XIII (Persero), Pontianak
 3. Atria Tiffany W. dan Agus M. Murdiani, (2014) [Kajian Penelitian Pasar Kenanga Pontianak](https://drive.google.com/file/d/1EKRBsYvj0cud6TwlYMBVxduNWlrTFFGq/view?usp=sharing). Bappeda Kota Pontianak
 4. Atria Tiffany W dan Sani, (2015), [Pengaruh Perilaku Konsumen terhadap Keputusan Berbelanja di Hypermart Pontianak](https://drive.google.com/file/d/12yboqHdBRTX-2DaFbL1t1q7BV2rCRtz4/view?usp=sharing). Hypermart, Pontianak

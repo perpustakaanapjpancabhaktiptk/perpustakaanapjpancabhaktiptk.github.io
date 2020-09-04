@@ -19,6 +19,7 @@ Pada Halaman ini berisi koleksi jurnal ilmiah sebagai berikut:
 11. Atria Tiffany W., (2018) [Pengaruh Pajak Daerah, Retribusi Daerah dan Produk Domestik Regional Bruto terhadap Kapasitas Fiskal Kota Pontianak](https://drive.google.com/file/d/1bmw9wgZ-nnoPMunf4QEtymif6_DLHeNw/view?usp=sharing). JEBIK UNTAN Pontianak, Provinsi Kalimantan Barat
 12. Atria Tiffany W. dan Sani, (2019) [The Analysis Potency of Slaughterhouse Retribution and Its Contribution for Pendapatan Asli Daerah (PAD) Pontianak City](https://drive.google.com/file/d/1aq1B8jQma_ZdRIR-Oan4dNAJYYv6hi1V/view?usp=sharing). Eksos Politeknik Negeri Pontianak, Provinsi Kalimantan Barat
 13. Atria Tiffany W (2020), [Analisis Praktik Income Smoothing Pada Perusahaan Manufaktur yang Listing di Bursa Efek Indonesia](https://drive.google.com/file/d/1IT8t9a_l4yZtYZ7I_mY3Fsfdc74uTtxw/view?usp=sharing). IDX Indonesia Cabang Pontianak, Provinsi Kalimantan Barat
+14. Atria Tiffany W (2020), [Pengantar Manajemen](https://drive.google.com/file/d/1DwsVG2IzNF1tH32ebNnr1WjWallKADjc/view?usp=sharing). Kampus APJ Panca Bhakti Pontianak, Provinsi Kalimantan Barat
 
 ### Daftar Inventaris Buku
 

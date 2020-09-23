@@ -30,6 +30,7 @@ Kampus APJ Panca Bhakti Pontianak memiliki koleksi perpustakaan yang terdiri dar
 5. Jurnal sejumlah 4 eksemplar buku
 6. Tabloid sejumlah 2 eksemplar buku
 7. Atria Tiffany W (2020), [Pengantar Manajemen](https://drive.google.com/file/d/1DwsVG2IzNF1tH32ebNnr1WjWallKADjc/view?usp=sharing). Kampus APJ Panca Bhakti Pontianak, Provinsi Kalimantan Barat
+8. Atria Tiffany W (2020), [Memahami Keuangan Daerah](https://drive.google.com/file/d/1DwsVG2IzNF1tH32ebNnr1WjWallKADjc/view?usp=sharing). Kampus APJ Panca Bhakti Pontianak, Provinsi Kalimantan Barat
 
 ### Tim Penyusun
 
